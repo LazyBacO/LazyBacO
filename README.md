@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... ai coding bcuz iam too lazy to learn coding .
 - 🌱 I’m currently learning ... nothing waithing for github spark ai
 - 💞️ I’m looking to collaborate on ... nothing 
-- 📫 How to reach me ... 234.5 FM radio 
+- 📫 How to reach me ... 234.5 FM or sub-ghz transmission message for savage messaging , 433920000 frequency. 
 - 😄 Pronouns: ... dude 
 - ⚡ Fun fact: ... 9+10=21 
 
